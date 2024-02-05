@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning cloud computing and network security
 - 📫 How to reach me jtwesthoff12@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Loves rock climbing
+- ⚡ Fun fact: I love rock climbing
